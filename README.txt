@@ -1,2 +1,1 @@
-
-                                                                               *** Digital Resume
+***Digital Resume
